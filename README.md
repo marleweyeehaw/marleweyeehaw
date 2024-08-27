@@ -1,9 +1,5 @@
- /)   /)
-(｡• ᵕ •｡) 
- ╭∪─∪────────╮ 
-.┊  We love   ┊
-.┊ Molly O'Shea ┊
- ╰─────────── 
+ We love   
+ Molly O'Shea 
 
  .˚ෆ I wish i was a cowboy riding my horse on the west but i'm just a 14 years old girl </3
 
