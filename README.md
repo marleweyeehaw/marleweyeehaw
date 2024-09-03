@@ -20,9 +20,9 @@ Here are some ideas to get you started:
 
 - °.☁️ • ๑ ˙☕ How to reach me: Don't.
 
-- °❀⋆.ೃ࿔*:･ Pronouns: She/they;
+- °❀⋆.ೃ࿔*:･ Pronouns: She/them;
 
-⋆ ִֶָ ๋+🎐 ⋆ Current Interests: RDR2 and RDR1, Dead Plate, R1999, Alien Space, Eloquent Countenance, Elevator Hitch, Stanley's Parable, Castlevania, Soul Eater, Cowboy Bebop, Hades, Zelda, Married in red, Cold Front, Therapy with Dr. Albert Krueger, Night in the Woods, Chilla's Art games, Lily's Well, SH-TDN, Utena, One Shot, Madoka Magica.......
+⋆ ִֶָ ๋+🎐 ⋆ Current Interests: RDR2 and RDR1, Dead Plate, R1999, Alien Space, Eloquent Countenance, Elevator Hitch, Stanley's Parable, Castlevania, Soul Eater, Cowboy Bebop, Hades, Zelda, Married in red, Cold Front, Therapy with Dr. Albert Krueger, Night in the Woods, Chilla's Art games, Lily's Well, SH-TDN, Utena, One Shot, Madoka Magica, ZZZ, GRIS.......
 
 - ⚡ Fun fact: Sea horses are canibals due to the fact that males give birth, and when their babies don't leave their belly, they must eat them or else they will die.
 
